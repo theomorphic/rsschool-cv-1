@@ -1,3 +1,2 @@
 # rsschool-cv
 
-# Kovalenko Galina 
